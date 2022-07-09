@@ -8,4 +8,4 @@ I do lil coding too hmm
 js,typescript,c#,Python,nim are main ones
 🙏  I mostly play with hardware ig..
 
-my discord- Ayumo#0303
+my discord- Ａｙｕｍｏ#6969
